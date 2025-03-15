@@ -1,4 +1,4 @@
-[![MasterHead](https://nielseniq.com/wp-content/uploads/sites/4/2021/02/data-science-icon-animation-banner-clockwise-4.gif?w=1024)](https://www.linkedin.com/in/shubham-mishra-34987321b/)
+[![MasterHead](https://nielseniq.com/wp-content/uploads/sites/4/2021/02/data-science-icon-animation-banner-clockwise-4.gif?w=1024)](https://www.linkedin.com/in/shubham-mishra-swe/)
 
 <h1 align="center">Hi 👋, I'm Shubham</h1>
 <h3 align="center">A passionate Data Science Enthusiast from India</h3>
@@ -10,13 +10,13 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/mShubham18](https://github.com/mShubham18)
 
-- 📝 I regularly write articles on [https://www.linkedin.com/in/shubham-mishra-34987321b/](https://www.linkedin.com/in/shubham-mishra-34987321b/)
+- 📝 I regularly write articles on [https://www.linkedin.com/in/shubham-mishra-swe/](https://www.linkedin.com/in/shubham-mishra-swe/)
 
 - 💬 Ask me about **AI, Machine Learning and Generative AI**
 
 - 📫 How to reach me **mshubham.mishra18@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1m5KedtUDpEwNv06IGgkE6AK9vse_0jj-/view?usp=sharing](https://drive.google.com/file/d/1m5KedtUDpEwNv06IGgkE6AK9vse_0jj-/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yRWrvp9ZFhtSng_UY-Ur1sx_izrExXnE/view?usp=sharing](https://drive.google.com/file/d/1yRWrvp9ZFhtSng_UY-Ur1sx_izrExXnE/view?usp=sharing)
 
 - ⚡ Fun fact **I'm a good listener**
 
