@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **mshubham.mishra18@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yRWrvp9ZFhtSng_UY-Ur1sx_izrExXnE/view?usp=sharing](https://drive.google.com/file/d/1qthqPMJllCsUgCXcDrDK0_W8kyDHzOBM/view?usp=sharing]([https://drive.google.com/file/d/1yRWrvp9ZFhtSng_UY-Ur1sx_izrExXnE/view?usp=sharing](https://drive.google.com/file/d/1qthqPMJllCsUgCXcDrDK0_W8kyDHzOBM/view?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yRWrvp9ZFhtSng_UY-Ur1sx_izrExXnE/view?usp=sharing](https://drive.google.com/file/d/1qthqPMJllCsUgCXcDrDK0_W8kyDHzOBM/view?usp=sharing](https://drive.google.com/file/d/1qthqPMJllCsUgCXcDrDK0_W8kyDHzOBM/view?usp=sharing))
 
 - ⚡ Fun fact **I'm a good listener**
 
